@@ -1,4 +1,3 @@
 # technique-test
 
-i hope we get full marks for this.
-re[flwep'ofvmpov
+i hope we get full marks for this. 
