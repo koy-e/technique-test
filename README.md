@@ -1,3 +1,3 @@
 # technique-test
 
-i hope we get full marks for this. 
+i hope we do well on this seminar
